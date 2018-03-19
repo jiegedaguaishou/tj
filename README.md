@@ -1,2 +1,0 @@
-# tj
-make me stronger
